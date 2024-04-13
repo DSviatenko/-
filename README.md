@@ -1,3 +1,2 @@
-**SVIATENKO Dmytro**\n
-
+**SVIATENKO Dmytro**
 FIT 4-5
